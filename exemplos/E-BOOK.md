@@ -10,18 +10,19 @@ Um lugar perfeito para relaxar e se conectar com a beleza natural da ilha. Desve
 
 ### **1.3 Mirante da Barra da Lagoa**
 Aprecie uma vista de tirar o fôlego do alto do mirante. Prepare-se para ser surpreendido pelo espetáculo natural que a Barra da Lagoa oferece.
+![Mirante da Barra da Lagoa](https://3.bp.blogspot.com/-aXQXbsc9gJA/XKt6UVHz07I/AAAAAAAA0L4/OVYcAKmKNkgfbJUwW_6TAnno9tKjj_L4ACLcBGAs/s1600/20190404_112240.jpg)
 
 ## **Capítulo 2: Balneário Camboriú - A Dubai Brasileira**
 
 ### **2.1 Praia Central**
 Caminhe pela orla mais badalada do sul do Brasil. Mergulhe na vida vibrante que só a Praia Central pode oferecer.
-
+![Praia Central](https://omunicipio.com.br/wp-content/uploads/2020/12/ima-autoriza-alargamento-da-praia-central-de-balneario-camboriu-praia.jpg)
 ### **2.2 Parque Unipraias**
 Viva a experiência única de um passeio de bondinho com vistas panorâmicas incríveis. Descubra por que este é um dos passeios mais cobiçados da região.
-
+![Parque Unipraias](https://media.tacdn.com/media/attractions-splice-spp-674x446/06/67/b2/01.jpg)
 ### **2.3 Cristo Luz**
 Uma atração que ilumina as noites de Balneário Camboriú. Explore o símbolo que encanta turistas do mundo todo com sua majestosa presença.
-
+![Cristo Luz](https://www.bcnoticias.com.br/wp-content/uploads/2022/12/cristo-luz.jpg)
 ## **Capítulo 3: Blumenau - A Alma Alemã no Brasil**
 
 ### **3.1 Museu da Cerveja**
