@@ -1,7 +1,7 @@
 # Santa Catarina: 15 Encantos que Vão te Fazer Redescobrir o Brasil 🌌
 
 ## 📒 Descrição
-** "Santa Catarina: 15 Encantos que Vão te Fazer Redescobrir o Brasil": ** é um convite para explorar as maravilhas de um dos estados mais encantadores do Brasil. Este eBook leva você por uma jornada inesquecível através de 15 destinos imperdíveis, desde as praias paradisíacas e montanhas imponentes até cidades que respiram história e cultura. Com informações detalhadas, dicas práticas e curiosidades fascinantes, este guia é ideal para viajantes que buscam conhecer a diversidade de paisagens e experiências que Santa Catarina oferece. Descubra os segredos e encantos catarinenses e deixe-se surpreender por um Brasil que você ainda não conhece!
+**"Santa Catarina: 15 Encantos que Vão te Fazer Redescobrir o Brasil":** é um convite para explorar as maravilhas de um dos estados mais encantadores do Brasil. Este eBook leva você por uma jornada inesquecível através de 15 destinos imperdíveis, desde as praias paradisíacas e montanhas imponentes até cidades que respiram história e cultura. Com informações detalhadas, dicas práticas e curiosidades fascinantes, este guia é ideal para viajantes que buscam conhecer a diversidade de paisagens e experiências que Santa Catarina oferece. Descubra os segredos e encantos catarinenses e deixe-se surpreender por um Brasil que você ainda não conhece!
 
 ## 🤖 Tecnologias Utilizadas
 - IA Generativa **[ChatGPT](https://chat.openai.com)** para criar os textos;
