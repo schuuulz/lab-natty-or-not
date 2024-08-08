@@ -7,7 +7,7 @@
 - IA Generativa **[ChatGPT](https://chat.openai.com)** para criar os textos;
 
 ## 🧐 Processo de Criação
-Utilizei o "ChatGPT" para revisar minha pesquisa sobre IAs Generativas, estruturar o conteúdo e refinar minhas ideias. Por outro lado, o "Leonardo AI" foi usado para gerar imagens exclusivas para o nosso e-book. Para concluir, a montagem final foi feita no Libre Office, por ser uma ferramenta open-source para edição de texto.
+Utilizei o "ChatGPT" para pesquisar ideias e cheguei a conclusão de fazer sobre pontos turísticos, perguntei quais eram os estados mais bonitos do Brasil, ele me trouxe uma gamma enorme de estados, até que escolhi 1 e fiz este ebook sobre Santa Catarina.
 
 ## 🌟 **Resultados Que Falam Por Si**
 
