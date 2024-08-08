@@ -35,7 +35,7 @@ Garanta seu exemplar do eBook "Santa Catarina: 15 Encantos que Vão te Fazer Red
 
 **Não perca a oportunidade de viver uma experiência de viagem inesquecível. Clique no link abaixo e comece a planejar sua aventura agora mesmo!**
 
-[**Comprar eBook Agora**](/exemplos/E-BOOK.md)
+[**QUERO SABER MAIS AGORA!**](/exemplos/E-BOOK.md)
 
 
 
