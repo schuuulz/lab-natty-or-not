@@ -4,7 +4,7 @@
 
 ### **1.1 Praia da Joaquina**
 A famosa praia que mistura surf, natureza e dunas impressionantes. Descubra como o vento e as ondas moldam este cenário paradisíaco.
-
+[!Praia da Joaquina](https://i.pinimg.com/originals/54/37/1f/54371f76838902b2233d285ff758c3b3.jpg)
 ### **1.2 Lagoa da Conceição**
 Um lugar perfeito para relaxar e se conectar com a beleza natural da ilha. Desvende os segredos que tornam este local tão especial.
 
